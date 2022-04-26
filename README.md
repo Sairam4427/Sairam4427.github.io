@@ -1,1 +1,0 @@
-Sowmya weds Sairam
